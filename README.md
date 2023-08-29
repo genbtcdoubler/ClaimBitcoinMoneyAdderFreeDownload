@@ -11,7 +11,7 @@ Cash Withdraw PEPE Airdrop
 🚀🚀🚀🚀🚀🚀🚀🚀
 🔗 Tap to join Airdrop👈🏻
 
-t.me/PepeAirdropRobot?start=5098943502
+https://t.me/PepeAirdropRobot?start=5098943502
 
 🏆 Winners:All Valid User
 ⏳ Airdrop end date: 31/08/2023
